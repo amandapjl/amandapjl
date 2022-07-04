@@ -4,7 +4,7 @@
 - 💞️ tenho 14 anos 
 - 📫 meu email para contato é lopesda.silva.amanda@escola.pr.gov.br
 - 😃 estou atualizando a programação e sou nova nessa área
-- 💫 sou do Brasil= pra
+- 💫 sou do Brasil= Pr
 - 😎 seja a sua melhor versão
 - 🔥 é grande o meu prazer no senhor!!! 
 
